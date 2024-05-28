@@ -5,4 +5,5 @@
 ![image](https://github.com/junghh21/__NOTE/assets/6457248/324be72c-72bb-45e2-a262-48aaafe1ebd2)
 ![image](https://github.com/junghh21/__NOTE/assets/6457248/7f88e62a-aba9-4e5a-88de-4d3da460cd0b)
 ![image](https://github.com/junghh21/__NOTE/assets/6457248/38954bf8-6f0a-463b-884c-b0ee67c12793)
+![image](https://github.com/junghh21/__NOTE/assets/6457248/48ce0aaa-1a86-43b2-92a2-b6c7f65d26fa)
 
