@@ -30,5 +30,6 @@ Nvidia 대체
 ![image](https://github.com/junghh21/__NOTE/assets/6457248/000b7681-0216-43b7-9bda-21a9d23ac0f2)
 
 
-
+클린에너지
+https://blog.naver.com/PostView.naver?blogId=ssibar1188&logNo=222434278544
 
