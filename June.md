@@ -18,7 +18,7 @@
 배당 ETF는 인컴이 우선이라면 더 나은 선택입니다.
 
 
-#Motley Pool
+# Motley Pool
 ![image](https://github.com/junghh21/__NOTE/assets/6457248/c7f86eb5-5bfb-4307-a635-b3650c445916)
 
 Cyber Security 관련주
